@@ -1,0 +1,1 @@
+#Start: 6 kleine und 2 große Vögel
